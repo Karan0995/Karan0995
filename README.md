@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Karan0995
+- 👋 Hi, I’m @Karan
 - 👀 I’m interested in Learning new things
 - 🌱 I’m currently learning nothing 
 - 💞️ I’m looking to collaborate on anyone 
