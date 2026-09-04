@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Karan
 - 👀 I’m interested in Learning new things
-- 🌱 I’m currently learning nothing 
+- 🌱 I’m currently learning
 - 💞️ I’m looking to collaborate on anyone 
 - 📫 How to reach me Karangandhi68@ymail.com
 <!---
